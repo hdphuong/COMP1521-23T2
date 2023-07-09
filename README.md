@@ -10,3 +10,5 @@ Tute materials for M12B and W11A
 [Week 04](https://www.canva.com/design/DAFmJhwIO2w/gsZzxGSMUMZpbLCr8HkTKg/edit?utm_content=DAFmJhwIO2w&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 [Week 05](https://www.canva.com/design/DAFmzgy6oco/cc2-P30X3_Oh2wY5TJUKBA/edit?utm_content=DAFmzgy6oco&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+[Week 07](https://www.canva.com/design/DAFoHZRH8V8/0k1gKI0nzSREwfzbXK7KdQ/view?utm_content=DAFoHZRH8V8&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
